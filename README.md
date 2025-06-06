@@ -1,4 +1,4 @@
-# 👋 ¡Hola! Soy Tobias Gomez
+# 👨🏻‍💻 ¡Hola! Soy Tobias Gomez
 
 ✔ Nombre: Tobias 
 
